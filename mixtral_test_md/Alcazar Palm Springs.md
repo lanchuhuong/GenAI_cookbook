@@ -1,0 +1,10 @@
+Thank you for thinking of Alcazar Palm Springs. To have an event on property there is a full buyout of rooms since we a re a small intimate space. The below information outlines booking an event at Alcazar Palm Springs.
+
+With our 33 rooms along with the outdoor courtyard and pool patio space a wedding of 100-125 maximum number of people works well on property. It must be a full buyout of the hotel and do have a two night minimum on weekends which includes all event and wedding buyouts.
+
+With a buyout event an agreement is set up were you either pay for all rooms or you guarantee the buyout for any rooms where a reservation was not made by one of the attendees. We block the entire hotel and your guests are instructed to call to make a reservation and supply their credit card information unless you are paying for the entire buyout. The nightly room rate which is the same for all guests and room types. The room rate is $\$ 245.00$ plus the current daily amenity fee of $\$ 20.00$ and current room taxes are added to the contracted room rate. Our Resort Fee includes morning coffee/espresso/tea \& pastries, parking, wireless internet throughout the property. Townie Bikes, local \& 800 calls.
+
+There is a $\$ 8,000.00$ non-refundable deposit/venue fee for all events where the hotel is a total buyout and is not a deposit to be applied towards room charges. Rental equipment is not included in this fee.
+
+All food and beverage must go through F10 Creative Catering for all on-site functions, this includes all alcohol beverages. There is a $\$ 18,000$ food and beverage minimum for all weddings held at our venue. Our Director of Sales \& Events, Brittany Borchard can assist you in detail with the various catering options that are available to you along with rental equipment such as tables, chairs, lighting, etc. Brittany's direct email is
+Brittany@F10creative.com. Please contact Shawn Flannigan at Signature Party Rental at Sflannigan@signatureparty.com,to obtain and discuss rental costs.

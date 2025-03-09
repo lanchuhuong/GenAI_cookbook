@@ -1,0 +1,1 @@
+build front end app with table for filtering and a chat interface

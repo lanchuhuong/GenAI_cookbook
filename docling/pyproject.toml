@@ -1,0 +1,11 @@
+[project]
+name = "docling-wedding"
+version = "0.1.0"
+description = "Add your description here"
+readme = "README.md"
+requires-python = ">=3.11"
+dependencies = []
+
+# Add this section to ensure uv uses a local venv for this project
+[tool.uv]
+venv = {path = ".venv"}
